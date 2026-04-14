@@ -361,16 +361,35 @@ Budget and mid-range tiers fit under $3,000. Fairmont pushes over budget.
 | | Caribbean (package) | Caribbean (DIY) | Halifax | Banff |
 |---|---|---|---|---|
 | **Total cost (mid-range)** | $2,800-3,700 | $1,700-2,500 | $1,250-2,150 | $2,010-3,160 |
+| **Nights** | 7 | 4 | 4 | 4 |
+| **Cost per day (mid-range)** | **$400-529/day** | **$425-625/day** | **$313-538/day** | **$503-790/day** |
+| **Cost per day (midpoint)** | **~$464/day** | **~$525/day** | **~$425/day** | **~$646/day** |
 | **Weather** | 30C/86F, sunny | 30C/86F, sunny | 7-10C/45-50F, mixed | 5C/42F, unpredictable |
 | **Duration flexibility** | 7 nights only | Any | Any | Any |
 | **Date flexibility** | Fixed charter schedule | Daily flights | Daily flights | Daily flights |
 | **Beach** | Yes | Yes | No | No |
-| **All-inclusive** | Yes | Possible | No | No |
+| **All-inclusive** | Yes (food/drinks incl) | Possible | No (budget ~$100-150/day food) | No (budget ~$100-150/day food) |
 | **Baby-friendliness** | Good (calm resorts) | Good | Great (walkable, casual) | Fair (cold, car needed) |
 | **Romance factor** | High (resort sunsets) | High | High (waterfront dining) | Very high (mountain castle) |
 | **Effort level** | Low (everything included) | Medium | Medium | Higher (car, weather) |
 | **Flight time** | 4-5 hours | 4-5 hours | 2 hours | 4 hours + 1.5h drive |
 | **Unique appeal** | Tropical escape, pool, beach | Same + date flexibility | Seafood, maritime charm | Mountain grandeur, spa |
+
+### Cost Per Day Breakdown
+
+The per-day view tells a different story than the total. Caribbean packages look expensive at $2,800-3,700 total, but they include 7 nights plus all food, drinks, and activities -- making the daily rate competitive.
+
+| Option | Nights | Total (mid) | $/Day | Food/Drinks Included? | True $/Day (incl. food) |
+|--------|--------|-------------|-------|-----------------------|-------------------------|
+| **Halifax (Marriott)** | 4 | ~$1,700 | ~$425 | No (+~$125/day food) | **~$550/day** |
+| **Caribbean package (Transat)** | 7 | ~$2,800 | ~$400 | Yes (all-inclusive) | **~$400/day** |
+| **Caribbean DIY (Cancun)** | 4 | ~$2,100 | ~$525 | Depends on hotel | **~$525-575/day** |
+| **Halifax (Muir luxury)** | 4 | ~$2,500 | ~$625 | No (+~$150/day food) | **~$775/day** |
+| **Banff (Moose Hotel)** | 4 | ~$2,585 | ~$646 | No (+~$125/day food) | **~$771/day** |
+| **Caribbean package (Sunwing)** | 7 | ~$3,370 | ~$481 | Yes (all-inclusive) | **~$481/day** |
+| **Banff (Fairmont)** | 4 | ~$3,760 | ~$940 | No (+~$175/day food) | **~$1,115/day** |
+
+**Key takeaway:** When you factor in food and drinks, the Caribbean all-inclusive packages are actually the best per-day value (~$400-481/day with everything included). Halifax mid-range is close (~$550/day) but you get a completely different experience. Banff is the most expensive per day, especially at the Fairmont tier.
 
 ---
 
