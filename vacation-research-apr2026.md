@@ -212,9 +212,190 @@ No Cuba packages with April 23-29 departures were found. Cuba packages are typic
 
 ---
 
+## Domestic Option: Halifax, Nova Scotia
+
+A completely different vibe -- maritime charm, world-class seafood, walkable waterfront, and dramatically cheaper than any Caribbean package. April is low season in Halifax, meaning great hotel deals and no crowds.
+
+### Weather (Late April)
+
+- Highs: 7-10C (45-50F), Lows: 1C (34F)
+- Mix of sun and cloud, 40% chance of rain on any given day
+- Cool but very walkable with a stroller -- dress in layers
+
+### Flights (YYZ to YHZ, roundtrip per person)
+
+| Airline | Est. RT/pp | Notes |
+|---------|-----------|-------|
+| Porter Airlines | ~$183 | Flies from Billy Bishop (YTZ) -- convenient |
+| WestJet | ~$183 | From Pearson (YYZ) |
+| Air Canada | ~$150-200 | From Pearson (YYZ) |
+| Flair Airlines | ~$120-150 | Budget carrier |
+
+April is one of the **cheapest months to fly to Halifax** from Toronto. Average roundtrip ~$134/pp.
+
+### Hotels (4 nights, estimated)
+
+| Hotel | Stars | $/Night | 4-Night Total | Vibe | Notes |
+|-------|-------|---------|---------------|------|-------|
+| Lord Nelson Hotel & Suites | 3.5 | $104-139 | $416-556 | Classic, downtown | Overlooking Public Gardens. Budget pick. |
+| Halifax Marriott Harbourfront | 4 | $145-288 | $580-1,152 | Waterfront, modern | Right on the boardwalk. April = low season pricing. Indoor pool. |
+| Westin Nova Scotian | 4 | $168-342 | $672-1,368 | Waterfront, upscale | Indoor heated pool, kids meals, spa with ocean views. |
+| Muir (Luxury Collection) | 5 | $317-447 | $1,268-1,788 | Boutique luxury, waterfront | On Queen's Marque waterfront. Staff extremely baby-friendly (cribs, kid robes, treats). Best hotel in Halifax. |
+
+### Total Budget Estimates (2 adults + Emma, 4 nights)
+
+| Tier | Flights (2pp) | Hotel (4 nights) | Food & Activities | Total |
+|------|--------------|-------------------|-------------------|-------|
+| Budget (Lord Nelson) | $270-400 | $420-560 | $400-600 | **$1,090-1,560** |
+| Mid-range (Marriott Harbourfront) | $270-400 | $580-1,150 | $400-600 | **$1,250-2,150** |
+| Upscale (Westin) | $270-400 | $670-1,370 | $400-600 | **$1,340-2,370** |
+| Luxury (Muir) | $270-400 | $1,270-1,790 | $500-800 | **$2,040-2,990** |
+
+All tiers are **well under the $3,000 budget**, even luxury. Since it's not all-inclusive, budget ~$100-150/day for restaurants (Halifax seafood is the attraction).
+
+### What to Do in Halifax with Emma
+
+- **Halifax Waterfront Boardwalk** -- flat, stroller-friendly, stunning harbour views, shops, restaurants
+- **Halifax Seaport Farmers' Market** -- local produce, handmade goods, Nova Scotian cheese, very kid-friendly
+- **Halifax Public Gardens** -- beautiful Victorian gardens, flowers blooming in late April, peaceful stroller walks
+- **Citadel Hill** -- panoramic city views, easy paved paths
+- **Seafood restaurants** -- many are casual/family-friendly (try The Bicycle Thief, Waterfront Warehouse)
+- **Alexander Keith's Brewery tour** -- one parent tours while the other walks the boardwalk with Emma
+- **Day trip to Peggy's Cove** (45 min drive) -- iconic lighthouse, stunning coastline
+
+### Halifax Pros & Cons for Your Trip
+
+**Pros:**
+- Massively cheaper than Caribbean ($1,000-2,000 savings)
+- Exact date flexibility -- daily flights, book any 4-night window you want
+- Easy with a baby -- flat waterfront, stroller-friendly, casual dining
+- Romantic waterfront restaurants for anniversary dinner
+- Low season = no crowds, great hotel deals
+- Short flight (~2 hours)
+- Muir Hotel is genuinely one of Canada's best boutique hotels
+
+**Cons:**
+- No beach/pool/warm weather (7-10C, need jackets)
+- Not all-inclusive -- you'll manage meals yourselves (but Halifax food is excellent)
+- Not the "tropical escape" vibe
+- April weather can be grey and rainy
+
+---
+
+## Domestic Option: Banff, Alberta
+
+Mountain grandeur, world-class spa hotels, stunning scenery even in shoulder season. April is true off-season in Banff -- low prices, no crowds, but limited outdoor activities.
+
+### Weather (Late April)
+
+- Highs: 5.5C (42F), Lows: -3.3C (27F)
+- Unpredictable -- can be sunny, snowy, or both in the same day
+- Still significant snow at higher elevations, melting in town
+- Spring shoulder season -- many attractions in transition
+
+### Flights (YYZ to YYC Calgary, roundtrip per person)
+
+| Airline | Est. RT/pp | Notes |
+|---------|-----------|-------|
+| Flair Airlines | ~$235+ | Budget carrier, most popular on this route |
+| WestJet | ~$350-450 | From Pearson (YYZ), most frequent service |
+| Air Canada | ~$350-450 | From Pearson (YYZ) |
+| Porter Airlines | ~$300-400 | From Billy Bishop or Pearson |
+
+Note: You fly to Calgary (YYC), then drive **1.5 hours (108 km)** to Banff. Rental car required (~$50-75/day).
+
+### Hotels (4 nights, estimated)
+
+| Hotel | Stars | $/Night | 4-Night Total | Vibe | Promo |
+|-------|-------|---------|---------------|------|-------|
+| BLC Properties (Ptarmigan, Rundlestone, etc.) | 3-3.5 | $120-200 | $480-800 | Budget mountain lodge | **SPRINGSTAY: 20% off + free parking** |
+| Moose Hotel & Suites | 4 | $177-339 | $708-1,356 | Modern, downtown Banff | SPRINGSTAY eligible. Rooftop hot pools. Family suites avail. |
+| Banff Caribou Lodge & Spa | 3.5 | $150-250 | $600-1,000 | Cozy lodge with spa | SPRINGSTAY eligible. Red Earth Spa on-site. |
+| Fairmont Banff Springs | 5 | $350-550 | $1,400-2,200 | Iconic castle hotel | "Best of Summer" 15% off 2+ nights. **+$65/night resort fee.** Spa, pools, fine dining. |
+
+**SPRINGSTAY promo code:** 20% off 2+ nights at all Banff Lodging Co. properties. Valid through June 30, 2026 (blackout Apr 3-6 only -- your dates are fine). Includes free parking.
+
+### Total Budget Estimates (2 adults + Emma, 4 nights)
+
+| Tier | Flights (2pp) | Hotel (4 nights) | Car Rental | Food & Activities | Total |
+|------|--------------|-------------------|------------|-------------------|-------|
+| Budget (BLC lodge + Flair) | $470 | $480-800 | $200-300 | $400-600 | **$1,550-2,170** |
+| Mid-range (Moose + WestJet) | $700-900 | $710-1,360 | $200-300 | $400-600 | **$2,010-3,160** |
+| Luxury (Fairmont + AC) | $700-900 | $1,660-2,460 | $200-300 | $500-800 | **$3,060-4,460** |
+
+Budget and mid-range tiers fit under $3,000. Fairmont pushes over budget.
+
+### What to Do in Banff with Emma (Late April)
+
+- **Banff Upper Hot Springs** -- outdoor thermal pool, mountain views. Baby-friendly (check temp rules for infants)
+- **Vermilion Lakes** -- short scenic drive from town, stunning views of Mt. Rundle, easy stop with stroller
+- **Open Top Touring** -- vintage bus tour through Banff townsite, learn the history
+- **Banff town stroll** -- Banff Ave shops, restaurants, galleries. Very walkable.
+- **Bow Falls** -- short easy walk from town, impressive waterfall
+- **Fairmont spa** (if staying there) -- one parent does spa while the other hangs with Emma
+- **Scenic drives** -- Bow Valley Parkway, Moraine Lake Road (may still be closed), Lake Minnewanka loop
+- **Wildlife watching** -- elk, deer, and occasionally bears emerging from hibernation
+
+### Banff Pros & Cons for Your Trip
+
+**Pros:**
+- Stunning mountain scenery, even in shoulder season
+- Off-season pricing (20-30% cheaper than summer)
+- No crowds (peak is July-September)
+- World-class spa at Fairmont
+- Romantic "castle in the mountains" vibes for anniversary
+- SPRINGSTAY promo saves 20% at many hotels
+
+**Cons:**
+- Cold (highs ~5C/42F) and unpredictable weather
+- Car rental required (Calgary to Banff + getting around)
+- Limited hiking -- avalanche risk, many trails still snow-covered
+- Glacier lakes still frozen (no turquoise water until June)
+- Long travel day with baby (4h flight + 1.5h drive)
+- Not a "relax on the beach" trip
+
+---
+
+## Side-by-Side Comparison: All Options
+
+| | Caribbean (package) | Caribbean (DIY) | Halifax | Banff |
+|---|---|---|---|---|
+| **Total cost (mid-range)** | $2,800-3,700 | $1,700-2,500 | $1,250-2,150 | $2,010-3,160 |
+| **Weather** | 30C/86F, sunny | 30C/86F, sunny | 7-10C/45-50F, mixed | 5C/42F, unpredictable |
+| **Duration flexibility** | 7 nights only | Any | Any | Any |
+| **Date flexibility** | Fixed charter schedule | Daily flights | Daily flights | Daily flights |
+| **Beach** | Yes | Yes | No | No |
+| **All-inclusive** | Yes | Possible | No | No |
+| **Baby-friendliness** | Good (calm resorts) | Good | Great (walkable, casual) | Fair (cold, car needed) |
+| **Romance factor** | High (resort sunsets) | High | High (waterfront dining) | Very high (mountain castle) |
+| **Effort level** | Low (everything included) | Medium | Medium | Higher (car, weather) |
+| **Flight time** | 4-5 hours | 4-5 hours | 2 hours | 4 hours + 1.5h drive |
+| **Unique appeal** | Tropical escape, pool, beach | Same + date flexibility | Seafood, maritime charm | Mountain grandeur, spa |
+
+---
+
+## Final Recommendations
+
+### If you want warm weather + beach + easy with baby:
+**DIY Cancun** (Flair flights + 4 nights all-inclusive) = **$1,600-2,300 total**. Best value for a tropical trip on your exact dates.
+
+### If you want the cheapest great trip:
+**Halifax** (Porter/AC flights + Marriott Harbourfront or Muir) = **$1,250-2,990 total**. Incredible food, beautiful waterfront, romantic, easy with Emma. The "hidden gem" option.
+
+### If you want the easiest all-in-one package:
+**Transat Viva Heavens, Puerto Plata** (Apr 24 departure) = **$2,798 total**. Only package found departing in your exact window. Book by April 19.
+
+### If you want the most romantic anniversary:
+**Banff** (Fairmont Banff Springs) or **Halifax** (Muir Hotel). The Fairmont is a "castle in the Rockies" experience; the Muir is Canada's best boutique waterfront hotel. Both unforgettable for an anniversary.
+
+### If you can take the full week off:
+**HM Alma de Bayahibe via Sunwing** (Apr 22, 7 nights) = **$3,370 total**. Romantic, quiet beach, calm waters for Emma, you're there for April 27.
+
+---
+
 ## Scan Metadata
 
 - **Date/Time of Scan:** April 14, 2026 (prices change frequently)
-- **Sites Scanned:** Sunwing, SellOff Vacations, Air Canada Vacations, Transat, WestJet Vacations, Flight Centre, Costco Travel, Expedia, KAYAK, momondo, Google Flights
-- **Limitation:** These sites use JavaScript-rendered search results. Prices shown are from static page listings and web search data, not custom date searches. Exact pricing for April 23-25 departures requires interactive search on each site.
-- **Infant Policy:** Emma (under 2) flies free as a lap infant on all carriers (Sunwing/WestJet/Air Canada/Air Transat/Flair). No infant surcharges were noted on any listing. Confirm at booking.
+- **Sites Scanned:** Sunwing, SellOff Vacations, Air Canada Vacations, Transat, WestJet Vacations, Flight Centre, Costco Travel, Expedia, KAYAK, momondo, Google Flights, Fairmont, Banff Lodging Co., Marriott, Muir Hotel, and more
+- **Limitation:** Travel booking sites use JavaScript-rendered search results. Prices shown are from static listings, web search data, and travel review aggregators -- not custom date searches. Exact pricing for specific dates requires interactive search on each site.
+- **Infant Policy:** Emma (under 2) flies free as a lap infant on all carriers (Sunwing/WestJet/Air Canada/Air Transat/Flair/Porter). No infant surcharges noted on any listing. Confirm at booking. Hotels generally offer free cribs on request.
