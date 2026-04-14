@@ -7,6 +7,50 @@
 
 ---
 
+## 🏆 FINAL DECISION
+
+**Sunwing HM Alma de Bayahibe, La Romana, Dominican Republic**
+
+- **Dates:** Wed April 22 → Wed April 29, 2026 (7 nights)
+- **Total:** $3,370 ($1,685/adult, Emma free as lap infant)
+- **Airline:** WestJet (operating Sunwing's charter flights)
+- **Savings:** 31% off (was $2,455/pp)
+- **Why this won:** Most romantic resort of all finalists. Bayahibe is one of the most beautiful, tranquil beach areas in the Caribbean -- boutique and intimate, calm turquoise water perfect for Emma's first beach. Anniversary night (April 27) falls on Night 6 of 7, fully settled in.
+- **Under upper budget ($3,500) by $130.**
+
+### Booking Action Items
+
+1. **Call Sunwing** or book online: https://www.sunwing.ca/en/promotion/packages/all-inclusive-vacation-packages
+2. **Confirm at booking:**
+   - Emma's lap infant fare (should be free + ~$50-80 taxes only)
+   - Crib request for room
+   - Highchair availability in restaurants
+   - Ocean-view or balcony room upgrade (~$50-100/pp extra, worth it)
+3. **Vacation days needed:** 6 (Wed Apr 22, Thu Apr 23, Fri Apr 24, Mon Apr 27, Tue Apr 28, Wed Apr 29) + 2 weekend days covered (Sat Apr 25, Sun Apr 26)
+
+### Tips for Traveling with Emma
+
+- **Flight:** Feed her during takeoff and landing to help with ear pressure
+- **Pack:** Extra diapers (more than you think), formula/food if applicable, favorite lovey, light baby carrier for airport
+- **At resort:** Request crib + baby bath at check-in. Ask about baby food availability or bring pouches
+- **Anniversary night:** Book the à la carte restaurant in advance for April 27. Ask concierge for sunset beach dinner options
+- **Sun protection:** Baby-safe sunscreen (mineral only, Emma's skin), sun hat, UPF swim shirt, umbrella for beach
+
+---
+
+## Research Background (for reference)
+
+The research below documents the full scan across Sunwing, SellOff, Air Canada Vacations, Transat, WestJet Vacations, Flight Centre, Costco Travel, Expedia, and domestic options (Halifax, Banff, Quebec City, Niagara, Muskoka). The final decision was made based on:
+
+1. **Warm weather Caribbean** (ruled out domestic/cold options)
+2. **All-inclusive** (ruled out DIY for simplicity)
+3. **Reputable airline** (ruled out Flair)
+4. **On vacation April 27** for anniversary (ruled out late-April departures)
+5. **7 nights OK** with 2 weekend days covered (ruled out 4-night-only options)
+6. **Romance > cost savings** within budget (selected Bayahibe over Puerto Plata for +$572)
+
+---
+
 ## Important Findings
 
 ### 1. Package Duration Mismatch
