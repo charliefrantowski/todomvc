@@ -393,28 +393,158 @@ The per-day view tells a different story than the total. Caribbean packages look
 
 ---
 
-## Final Recommendations
+## Emma's First Trip: Drive-to Options (No Flights)
 
-### If you want warm weather + beach + easy with baby:
-**DIY Cancun** (Flair flights + 4 nights all-inclusive) = **$1,600-2,300 total**. Best value for a tropical trip on your exact dates.
+The easiest travel with an 8-month-old is no airport at all. Pack the car seat, bring everything you need, leave on your own schedule. These are all within driving distance of Toronto.
 
-### If you want the cheapest great trip:
-**Halifax** (Porter/AC flights + Marriott Harbourfront or Muir) = **$1,250-2,990 total**. Incredible food, beautiful waterfront, romantic, easy with Emma. The "hidden gem" option.
+### Niagara Falls (1.5h drive from Toronto)
 
-### If you want the easiest all-in-one package:
-**Transat Viva Heavens, Puerto Plata** (Apr 24 departure) = **$2,798 total**. Only package found departing in your exact window. Book by April 19.
+| Hotel | $/Night | 4-Night Total | Why It's Special |
+|-------|---------|---------------|-----------------|
+| Sheraton Fallsview | $98-153 | **$392-612** | Fallsview rooms with floor-to-ceiling windows overlooking Horseshoe Falls. Connected to indoor waterpark. Emma's first view of the falls from the room = incredible photo. |
+| Marriott Fallsview | $130-250 | **$520-1,000** | Falls view, indoor pool, upscale. |
+| Great Wolf Lodge | $238-805 | **$952-3,220** | Indoor waterpark with baby-safe splash areas. More "fun" than "romantic." |
 
-### If you want the most romantic anniversary:
-**Banff** (Fairmont Banff Springs) or **Halifax** (Muir Hotel). The Fairmont is a "castle in the Rockies" experience; the Muir is Canada's best boutique waterfront hotel. Both unforgettable for an anniversary.
+**Total estimate (Sheraton, 4 nights):** Hotel $400-600 + Food $400-600 + Gas/Parking $50 = **$850-1,250**
 
-### If you can take the full week off:
-**HM Alma de Bayahibe via Sunwing** (Apr 22, 7 nights) = **$3,370 total**. Romantic, quiet beach, calm waters for Emma, you're there for April 27.
+**Why for Emma:** She can see the Falls from the hotel room window, feel the mist on her face at Table Rock, ride the elevator down to the Journey Behind the Falls tunnel. Incredible first-trip photos with the falls as backdrop.
+
+**Why for your anniversary:** Niagara Falls at night is genuinely romantic -- the falls are lit up in colours. Dinner at AG (the Sheraton's steakhouse) or Massimo's Italian overlooking the falls.
+
+### Niagara-on-the-Lake (1.5h drive -- combine with Falls for a split trip!)
+
+| Hotel | $/Night | 4-Night Total | Why It's Special |
+|-------|---------|---------------|-----------------|
+| Pillar and Post | $167-299 | **$668-1,196** | 13,000 sq ft spa. Wine country elegance. April = lowest rates. |
+| Prince of Wales | $200-350 | **$800-1,400** | Victorian luxury on the main street. |
+| Queen's Landing | $180-300 | **$720-1,200** | Harbour views, pool, elegant dining. |
+
+**Total estimate (Pillar and Post, 4 nights):** Hotel $670-1,200 + Food $400-600 + Gas $50 + Wine tastings $100 = **$1,220-1,950**
+
+**Why for Emma:** Charming small town, flat sidewalks perfect for strolling with a stroller, peaceful and quiet. Many wineries have gorgeous patios where you can enjoy tastings while Emma naps in the stroller.
+
+**Why for your anniversary:** This is the most romantic drive-to option. Spa afternoon at 100 Fountain Spa, wine tasting along the Niagara wine route, candlelit dinner at Treadwell. Peak anniversary vibes.
+
+**Power combo:** 2 nights Niagara-on-the-Lake (romantic wine country) + 2 nights Niagara Falls (dramatic falls experience) = **$1,000-1,600 total**. Best of both worlds, all within 20 minutes of each other.
+
+### Blue Mountain Village (2h drive)
+
+| Hotel | $/Night | 4-Night Total | Why It's Special |
+|-------|---------|---------------|-----------------|
+| Westin Trillium House | $250-400 | **$1,000-1,600** | Pedestrian village, pool, Plunge! Aquatic Centre access. Spring Early Bird: 20% off 2+ nights. |
+
+**Total estimate (4 nights):** Hotel $1,000-1,600 + Food $400-600 + Gas $50 = **$1,450-2,250**
+
+**Why for Emma:** Car-free pedestrian village is great for strolling. Pool and splash pad. Scenic gondola ride (open in spring weekends). Gentle, quiet atmosphere.
+
+### Muskoka (2.5h drive)
+
+| Hotel | $/Night | 4-Night Total | Why It's Special |
+|-------|---------|---------------|-----------------|
+| JW Marriott Rosseau | $454-486 | **$1,816-1,944** | Lakeside luxury. Spa. Stunning lake views. Kitchenette suites. |
+| Fern Resort (Orillia) | All-inclusive | **~$1,100-1,500** | Ontario's all-inclusive family resort. 90 min from Toronto. Meals, activities, beach all included. Kids under 2 free. |
+
+**Total estimate (JW Marriott, 4 nights):** Hotel $1,800-1,950 + Food $400-600 + Gas $60 = **$2,260-2,610**
+**Total estimate (Fern Resort, 4 nights):** All-inclusive ~$1,100-1,500 + Gas $40 = **$1,140-1,540**
+
+**Why Fern Resort:** It's basically the all-inclusive Caribbean experience but 90 minutes from Toronto. All meals included, lakeside beach, no flights. Kids under 2 stay free. This checks every box: all-inclusive simplicity, family-friendly, easy travel, affordable.
+
+---
+
+## Emma's First Trip: Short Flight Options
+
+### Quebec City (1.5h flight YYZ-YQB, ~$200-350/pp RT)
+
+| Hotel | $/Night | 4-Night Total | Why It's Special |
+|-------|---------|---------------|-----------------|
+| Fairmont Chateau Frontenac | $227-418 | **$908-1,672** | Iconic castle hotel perched above Old Quebec. One of the most photographed hotels in the world. Indoor pool. Cribs, kids menus, family activities. |
+| Hotel & Spa Manoir St-Castin | $150-250 | **$600-1,000** | Boutique, quieter option. |
+
+**Total estimate (Chateau Frontenac, 4 nights):** Flights $400-700 + Hotel $900-1,670 + Food $500-700 = **$1,800-3,070**
+
+**Why for Emma:** Strolling the cobblestone streets of Old Quebec with Emma in a carrier or stroller. The Petit Champlain neighbourhood is magical -- colourful buildings, tiny shops, street musicians. Short 1.5h flight. The Chateau itself feels like a fairytale castle.
+
+**Why for your anniversary:** Old Quebec is arguably the most romantic city in North America. Candlelit dinner at a bistro in Petit Champlain, walk the Terrasse Dufferin boardwalk at sunset overlooking the St. Lawrence, breakfast at the Chateau. European anniversary vibes without crossing the Atlantic.
+
+**April weather:** 3-10C (37-50F). Cool but walkable with layers.
+
+### Bermuda (3h nonstop flight YYZ-BDA, ~$350-640/pp RT)
+
+| Hotel | $/Night | 4-Night Total | Why It's Special |
+|-------|---------|---------------|-----------------|
+| Fairmont Southampton (if open) | $300-500 | **$1,200-2,000** | Pink sand beach, pools, spa. |
+| Hamilton Princess | $350-550 | **$1,400-2,200** | Harbour-front luxury. |
+| Grotto Bay Beach Resort | $250-400 | **$1,000-1,600** | Natural caves, beach, family-friendly. |
+
+**Total estimate (mid-range, 4 nights):** Flights $700-1,280 + Hotel $1,000-2,000 + Food $500-800 = **$2,200-4,080**
+
+**Why for Emma:** This is the only warm-weather short-flight option. April in Bermuda is 22-24C (72-75F) -- warm enough for the beach but not blazing hot. Pink sand beaches with calm, clear water. Very civilized, safe, English-speaking. Emma's first beach could be a pink sand beach.
+
+**Why for your anniversary:** Bermuda is elegant and romantic -- harbour-front dining in Hamilton, pink sand sunset walks, scooter rides (one of you with Emma, obviously). A step above typical Caribbean in terms of charm.
+
+**Caveat:** Most expensive option. Not all-inclusive (Bermuda restaurants are pricey). 3h flight is manageable but longer than domestic options.
+
+### Mont-Tremblant (drive 4.5h, or fly to Montreal 1h + drive 1.5h)
+
+| Hotel | $/Night | 4-Night Total | Why It's Special |
+|-------|---------|---------------|-----------------|
+| Fairmont Tremblant | $255-385 | **$1,020-1,540** | 15% off spring stays. Ski-lodge luxury. Kids cinema, playroom, pool. Cribs available. |
+| Les Suites Tremblant | $189-300 | **$756-1,200** | Suite-style, kitchen. From $189 Sun-Thu. |
+
+**Total estimate (Fairmont, drive, 4 nights):** Hotel $1,020-1,540 + Food $400-600 + Gas $120 = **$1,540-2,260**
+
+**Why for Emma:** Tremblant's pedestrian village is like a colourful European town -- perfect for strolling with a baby. Fairmont has nightly kids cinema, a big playroom, and an indoor pool. The village has gentle activities and beautiful mountain scenery.
+
+---
+
+## Master Comparison: All Options by Cost Per Day
+
+| Option | Nights | Total (mid) | $/Day (all-in) | Weather | Travel | Baby Rating | Romance | 
+|--------|--------|-------------|----------------|---------|--------|-------------|---------|
+| **Niagara Falls (Sheraton)** | 4 | ~$1,050 | **~$263/day** | 12C/54F | 1.5h drive | Great | Good |
+| **Niagara combo (NOTL+Falls)** | 4 | ~$1,300 | **~$325/day** | 12C/54F | 1.5h drive | Great | Very High |
+| **Fern Resort (all-incl)** | 4 | ~$1,340 | **~$335/day** | 10C/50F | 1.5h drive | Excellent | Good |
+| **NOTL (Pillar and Post)** | 4 | ~$1,585 | **~$396/day** | 12C/54F | 1.5h drive | Great | Very High |
+| **Tremblant (Fairmont)** | 4 | ~$1,900 | **~$475/day** | 5C/41F | 4.5h drive | Great | High |
+| **Caribbean pkg (Transat)** | 7 | ~$2,800 | **~$400/day** | 30C/86F | 4.5h flight | Good | High |
+| **Halifax (Marriott)** | 4 | ~$1,700 | **~$550/day** | 8C/46F | 2h flight | Great | High |
+| **Quebec City (Frontenac)** | 4 | ~$2,435 | **~$609/day** | 7C/45F | 1.5h flight | Great | Very High |
+| **Blue Mountain (Westin)** | 4 | ~$1,850 | **~$463/day** | 8C/46F | 2h drive | Good | Good |
+| **DIY Cancun** | 4 | ~$2,100 | **~$525/day** | 30C/86F | 4.5h flight | Good | High |
+| **Caribbean pkg (Sunwing)** | 7 | ~$3,370 | **~$481/day** | 30C/86F | 4.5h flight | Good | Very High |
+| **Muskoka (JW Marriott)** | 4 | ~$2,435 | **~$609/day** | 8C/46F | 2.5h drive | Great | High |
+| **Bermuda** | 4 | ~$3,140 | **~$785/day** | 23C/73F | 3h flight | Great | Very High |
+| **Banff (Moose Hotel)** | 4 | ~$2,585 | **~$646/day** | 5C/42F | 4h flight+drive | Fair | High |
+| **Halifax (Muir luxury)** | 4 | ~$2,515 | **~$629/day** | 8C/46F | 2h flight | Great | Very High |
+| **Banff (Fairmont)** | 4 | ~$3,760 | **~$940/day** | 5C/42F | 4h flight+drive | Fair | Very High |
+
+---
+
+## Final Recommendations: Emma's First Trip Edition
+
+### Best Overall (value + experience + baby-friendly):
+**Niagara-on-the-Lake + Niagara Falls combo** -- 2 nights at Pillar and Post (wine country romance, spa) + 2 nights at Sheraton Fallsview (falls view room, dramatic). **~$1,300 total / ~$325/day.** No flights, no stress, pack whatever you need in the car, leave and return whenever you want. Emma's first view of the falls from the hotel room is an unforgettable moment. Wine and spa for your anniversary. Dramatically under budget.
+
+### Best All-Inclusive (no thinking required):
+**Fern Resort, Orillia** -- Ontario's all-inclusive family resort, 90 min drive. All meals included, lakeside beach, activities. Kids under 2 free. **~$1,340 total / ~$335/day.** Closest thing to a Caribbean all-inclusive without leaving Ontario. Zero logistics after you arrive.
+
+### Best Warm-Weather Option:
+**DIY Cancun** (Flair flights + 4 nights all-inclusive hotel) -- **~$2,100 total / ~$525/day.** Emma's first beach in warm turquoise water. Real tropical vacation on your exact dates.
+
+### Most Romantic Anniversary Trip:
+**Quebec City (Fairmont Chateau Frontenac)** -- **~$2,435 total / ~$609/day.** Staying in a fairytale castle overlooking Old Quebec. Cobblestone streets, candlelit bistros, Terrasse Dufferin sunset walk with Emma. The most romantic city in North America, and a 1.5h flight. The Chateau is an experience Emma will see in photos for the rest of her life.
+
+### Best "Money Is No Object" Splurge:
+**Bermuda** -- **~$3,140 total / ~$785/day.** Pink sand beaches, warm weather (23C), elegant dining, 3h nonstop flight. Emma's first beach on pink sand. The upscale option that combines warm weather with short travel.
+
+### Best If You Can Take the Full Week:
+**Caribbean all-inclusive package (HM Alma de Bayahibe via Sunwing)** -- **~$3,370 total / ~$481/day all-inclusive.** 7 nights, all food/drinks included, calm beach, romantic atmosphere. You'll be at the resort for your April 27 anniversary. Best per-day value for a beach trip.
 
 ---
 
 ## Scan Metadata
 
 - **Date/Time of Scan:** April 14, 2026 (prices change frequently)
-- **Sites Scanned:** Sunwing, SellOff Vacations, Air Canada Vacations, Transat, WestJet Vacations, Flight Centre, Costco Travel, Expedia, KAYAK, momondo, Google Flights, Fairmont, Banff Lodging Co., Marriott, Muir Hotel, and more
+- **Sites Scanned:** Sunwing, SellOff Vacations, Air Canada Vacations, Transat, WestJet Vacations, Flight Centre, Costco Travel, Expedia, KAYAK, momondo, Google Flights, Fairmont, Banff Lodging Co., Marriott, Muir Hotel, Vintage Hotels, Great Wolf Lodge, Fern Resort, and more
 - **Limitation:** Travel booking sites use JavaScript-rendered search results. Prices shown are from static listings, web search data, and travel review aggregators -- not custom date searches. Exact pricing for specific dates requires interactive search on each site.
-- **Infant Policy:** Emma (under 2) flies free as a lap infant on all carriers (Sunwing/WestJet/Air Canada/Air Transat/Flair/Porter). No infant surcharges noted on any listing. Confirm at booking. Hotels generally offer free cribs on request.
+- **Infant Policy:** Emma (under 2) flies free as a lap infant on all carriers (Sunwing/WestJet/Air Canada/Air Transat/Flair/Porter). No infant surcharges noted on any listing. Hotels generally offer free cribs on request. Fern Resort: kids under 2 free.
